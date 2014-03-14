@@ -1,3 +1,3 @@
 Lilka
 =====
-[prezentacja](https://drive.google.com/?tab=Xo&authuser=0#my-drive)
+[prezentacja](https://docs.google.com/presentation/d/1CQAL8SQVt1oxZyspEfe2gqwBru2JqfMgh7noUibbXVE/edit#slide=id.p13)
